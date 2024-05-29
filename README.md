@@ -7,7 +7,7 @@
 
 <p align="center"><br><br><b> ✦If AFK; </b> Usually I'm off tab a lot
  <p align="center"> please either visit my inbox via; <a href="https://retrospring.net/@StarberryJelly">Retrospring</a> or Whisper to Int. . . 
-  <u>can't promise that I'll reply </u>, if you wish to know <a href="https://en.pronouns.page/@StrawberryJelly">more info</a>
+  <u>can't promise that I'll reply </u>, if you wish to know <a href="https://en.pronouns.page/@StarJelly">more info</a>
    
 <p align="center"> <br><br><b> ✦Do NOT!<img src=https://64.media.tumblr.com/fd3ebb8f4374f0ff470173bdf3720e21/e92e724d08501b36-d2/s75x75_c1/4c4bf1733ae1c5cdf39a7c8bc6614a42332a366f.gifv height="16px">  </b>; C+H [Friends ONLY! or Ask], Heavily Inspo/copy my ponies, Overall Weirdos
 
