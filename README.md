@@ -2,7 +2,7 @@
 <p align="center"> When the war of the beasts brings about the world's end The goddess descends from the sky Wings of light and dark spread afar She guides us to bliss, her gift everlasting
 
 <p align="center">
-<img src=https://private-user-images.githubusercontent.com/132003284/330606613-23a0ff9f-cc6b-4cbb-b3c3-61fd4361d2da.png?jwt=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3MTY5MDQ3NzUsIm5iZiI6MTcxNjkwNDQ3NSwicGF0aCI6Ii8xMzIwMDMyODQvMzMwNjA2NjEzLTIzYTBmZjlmLWNjNmItNGNiYi1iM2MzLTYxZmQ0MzYxZDJkYS5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjQwNTI4JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI0MDUyOFQxMzU0MzVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT04Njg5NGU0ZjU2ZDNhZDYwNzhlZmFhYjcyMjlkZmQ5MmU2ZmRmODJhNWJlMDc2MDA5NWQxMTk5ZjBkYjA3NWZlJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZhY3Rvcl9pZD0wJmtleV9pZD0wJnJlcG9faWQ9MCJ9.02KiSAUnJScJ4M8lXpxQKQ0WKF-mUinNDlAxahGW-0k width="520px">
+
 <br><br><b> <img src=https://wilardo.crd.co/assets/images/gallery18/e81edcc1.gif?v=587f0c5f height="16px">Jelly<img src=https://wilardo.crd.co/assets/images/gallery18/e81edcc1.gif?v=587f0c5f height="16px">||</b> He·Him <b>|| </b> Open? <img src= https://64.media.tumblr.com/0001d0fcf46ac9a65182a167eb8cd4a1/03df6dfbf8efa529-88/s75x75_c1/ae0f8ef6be2f5eded42ef4e91d57de4c40c2fdba.gifv  height="16px">
 
 <p align="center"><br><br><b> ✦If AFK; </b> Usually I'm off tab a lot
