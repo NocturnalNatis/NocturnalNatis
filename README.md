@@ -1,7 +1,7 @@
 # ⭒About ST✦R⭒
 <p align="center"> <img src=https://raw.githubusercontent.com/Starb3rryJ3lly/for-github/main/Untitled15_20240601113622.png height="460px">
 
-<p align="center"> ⭒Adult <br><br><b>||</b> He∙Him <br><br><b>||</b> “Slap some bacon on a biscuit and let’s go! We’re burnin’ daylight!” <img src=https://maguro.carrd.co/assets/images/gallery04/b51e4072.png?v=6d27d80b height="20px">
+<p align="center"> “Slap some bacon on a biscuit and let’s go! We’re burnin’ daylight!” <img src=https://maguro.carrd.co/assets/images/gallery04/b51e4072.png?v=6d27d80b height="20px">
  
 
 <p align="center"> <img src=https://64.media.tumblr.com/71ac74e020b23acc2361a4ce5e25e1c1/b616fdcd1c008954-84/s640x960/152f7c3a774f1c03b69ad1134599d668f52e4605.pnj height="20px">
