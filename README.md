@@ -24,4 +24,4 @@
 <p align="center"> Thank you for stopping by 
 
 
-![](https://blinkies.neocities.org/b/display/0188-knifechainsaw.gif) ![](https://blinkies.neocities.org/b/display/0036-fire.gif) ![](https://i.imgur.com/KJ3jZpB.gif) ![](https://blinkies.neocities.org/b/display/0178-mikuwink2.gif) ![](https://blinkies.neocities.org/b/display/0124-stars.gif) ![](https://blinkies.neocities.org/b/display/0094-tinycats.gif) 
+![](https://blinkies.neocities.org/b/display/0188-knifechainsaw.gif) ![](https://blinkies.neocities.org/b/display/0036-fire.gif) ![](https://i.imgur.com/KJ3jZpB.gif) ![](https://blinkies.neocities.org/b/display/0178-mikuwink2.gif) ![](https://blinkies.neocities.org/b/display/0094-tinycats.gif) 
