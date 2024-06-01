@@ -1,8 +1,6 @@
 # About Me . . . 
 <p align="center"> "When the war of the beasts brings about the world's end The goddess descends from the sky Wings of light and dark spread afar She guides us to bliss, her gift everlasting."
 
-<p align="center"> <img https://raw.githubusercontent.com/Starb3rryJ3lly/for-github/main/Untitled7_20240531113724.png height="360px">
-
 <p align="center"> <br><br><b> <img src=https://wilardo.crd.co/assets/images/gallery18/e81edcc1.gif?v=587f0c5f height="16px">Jelly<img src=https://wilardo.crd.co/assets/images/gallery18/e81edcc1.gif?v=587f0c5f height="16px">||</b> He·Him<b>|| </b> Adult <b>|| </b> Open? <img src= https://64.media.tumblr.com/0001d0fcf46ac9a65182a167eb8cd4a1/03df6dfbf8efa529-88/s75x75_c1/ae0f8ef6be2f5eded42ef4e91d57de4c40c2fdba.gifv height="16px">
 
 <p align="center"><br><br><b> ✦If AFK; </b> Usually I'm off tab a lot
