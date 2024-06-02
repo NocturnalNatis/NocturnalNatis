@@ -11,7 +11,7 @@
  <br><br><b> Do NOT! <img src=https://xyz.crd.co/assets/images/gallery11/3e511865.gif?v=6ecccb1c height="20px">: </b> Do not copy my ponies/Heavy inspo feel free to take slight Inspo though.
   Do Not sit next to me if you aren't a friend of mine
   
-  <p align="center"> Look at my <a href="https://en.pronouns.page/@StarJelly">Pronouns page</a> for more info & DNI List 
+  <p align="center"> Take a gander at my <a href="https://en.pronouns.page/@StarJelly">Pronouns page</a> for more info & DNI List 
 
  <p align="center"> <img src=https://64.media.tumblr.com/71ac74e020b23acc2361a4ce5e25e1c1/b616fdcd1c008954-84/s640x960/152f7c3a774f1c03b69ad1134599d668f52e4605.pnj height="20px">
 <br><br><b> My Main Interests </b> 
