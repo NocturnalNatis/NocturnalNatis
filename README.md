@@ -17,7 +17,7 @@
 <br><br><b> My Main Interests </b> 
 
 <p align="center"> <br><br><b>Personally I do not associate myself with any fandoms mentioned below due to they ruin things for me, they are simply my interests.</b>
-<p align="center"> Final Fantasy 7,10,13 & 15, Devil May Cry, Resident Evil,Metal Gear Solid, Yakuza, Fatal Frame, Wuthering Waves & Hoyo Games
+<p align="center"> Final Fantasy 7,10,13 & 15, Devil May Cry, Resident Evil,Metal Gear Solid, Yakuza, Fatal Frame, Red Dead, Wuthering Waves & Hoyo Games
 
 
 <p align="center">  <img src= https://64.media.tumblr.com/ac532b3a5d958628c1fbe91cadc0d817/4b0a040329ee9659-fc/s400x600/6a527c4d5def74241b1e7acb0e34eb839d9e7f17.gifv height="340px">
