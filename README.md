@@ -8,7 +8,7 @@
 <br><br><b>Ponytown General info </b>
 <p align="center"> <br><br><b>If AFK:</b> Most likely playing a game or talking to my pookie/bsf,Whisp or PLEASE visit my <a href="https://retrospring.net/@StarberryJelly">Retrospring</a>
  <br><br><b> Where I'm Found:</b> Either Beside or In Hoyo/Gacha Area, In the Resident Evil Area beside spawn, below spawn[In the MISC Games area]
- <br><br><b> Do NOT! <img src=https://xyz.crd.co/assets/images/gallery11/3e511865.gif?v=6ecccb1c height="20px">: </b> Do not copy my ponies/Heavy inspo feel free to take slight Inspo though.[I love to use fun colors usually viberant/soft or bland]
+ <br><br><b> Do NOT! <img src=https://xyz.crd.co/assets/images/gallery11/3e511865.gif?v=6ecccb1c height="20px">: </b> Do not copy my ponies/Heavy inspo feel free to take slight Inspo though.[I love to use fun colors usually viberant/soft]
   Do Not sit next to me if you aren't a friend of mine
   
   <p align="center"> Take a gander at my <a href="https://en.pronouns.page/@StarJelly">Pronouns page</a> for more info & DNI List 
