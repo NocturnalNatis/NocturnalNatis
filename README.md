@@ -1,2 +1,20 @@
 # ⭒About N✦tis⭒
-This is a huge Wip please be patient as I update
+<p align="center"> Welcome to My Github!
+<p align="center"> <img src=https://i.pinimg.com/originals/79/f0/f1/79f0f1124c1c0daf986ce1aa39fb15ce.gif height="360px">
+<p align="center"> <img src=https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj height="16px">
+<p align="center"><br><br><b> ✦Main Criteria✦; </b> 
+<p align="center">  DNI: Those who tell others to k!ll themselves, Anti-LGBTQ+,Proshippers, Weirdos/Creeps
+<p align="center"> BYI: Feel free to interact with me as long as you aren't any of those things listed above & aren't being weird about it I don't see an issue.
+<p align="center"> <img src=https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj height="16px">
+<p align="center"><br><br><b> ✦About/Interests✦; </b> 
+<p align="center"> Mostly known for wearing Final Fantasy Characters!
+<p align="center"><br><br><b> ✦Interests✦; Final Fantasy [VII,VIII,X,XIII,XV] Yakuza[0-5] KH[III,W.I.P] DMC[3-5] MGS[1-R] RE[2-8] NieR[Replicant & Automata]</b> 
+<p align="center"><br><br><b> ✦If Afk✦; </b> 
+<p align="center">  At times I do go afk usually due to Irl stuff/drawing &/or gaming if this happens feel free to leave a message in my Retrospring &/or leave a message in my whispers!
+<p align="center"> <img src=https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj height="16px">
+
+<p align="center"> <img src=https://64.media.tumblr.com/8ef6d8e6c69c6965ac635fe9293d7d64/6f072ea04e7b6c72-6f/s100x200/1ef325c98fdc63cf9f80909a2a83349ebfa62977.gifv height="70px"><img src=https://64.media.tumblr.com/33720be2fefc531159a779a1d65bfcd4/372588af30c30c4d-c3/s100x200/d5eb55227aaf52c98dec640ed86b5b0909e1846b.gifv height="70px"><img src=https://64.media.tumblr.com/462f94819039d0795cbdd8c1e4a83c23/372588af30c30c4d-c5/s100x200/6d78ca9350d727ea8aa926ac6d7123a23bace9bf.pnj height="70px">
+
+<p align="center"> <img src=https://i.pinimg.com/originals/9b/61/4b/9b614b9d4eac5b45a37a9975ffe08d42.gif height="260px">
+
+
