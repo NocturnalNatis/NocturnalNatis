@@ -1,6 +1,6 @@
 # ⭒About N✦tis⭒
-<p align="center"> Welcome to My Github!
-<p align="center"> <img src=https://i.pinimg.com/originals/79/f0/f1/79f0f1124c1c0daf986ce1aa39fb15ce.gif height="360px">
+<p align="center"> Welcome to my Github!
+<p align="center"> <img src=https://i.pinimg.com/originals/03/63/11/0363112d77e831018b8052befbc01829.gif height="360px">
 <p align="center"> <img src=https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj height="16px">
 <p align="center"><br><br><b> ✦Main Criteria✦; </b> 
 <p align="center"><br><br><b> Before you interact; </b> All I ask is if you interact with me to be patient, understanding & civil [Feel free to C+H]
