@@ -12,7 +12,7 @@
 
 <p align="center"><br><br><b> ✦Main Criteria✦ </b> 
 <p align="center">  DNI: Those who wish death upon others, Weirdos, proshippers[Spardacest, Roscest]
-<p align="center"><br><br><b>I block freely if I block you DO NOT ask others for me to unblocked there is a reason behind it.</b> 
+<p align="center"><br><br><b>I block freely if I block you DO NOT ask others for me to unblock there is a reason behind it.</b> 
 <p align="center"> <img src=https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj height="16px">
 <p align="center"><br><br><b> ✦About/Interests✦ </b> 
 <p align="center"> Mostly near the spawn! 
