@@ -15,7 +15,7 @@
 <p align="center"><br><br><b>I block freely if I block you DO NOT ask others for me to unblock there is a reason behind it.</b> 
 <p align="center"> <img src=https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj height="16px">
 <p align="center"><br><br><b> ✦About/Interests✦ </b> 
-<p align="center"> Final Fantasy [VII, VIII, X, XII, XIII,XV, XVI] Yakuza[0-5] KH[I,COM,III,W.I.P] Yakuza[0-5] DMC[3-5] MGS[1-R] RE[2-8] DraknieR[DG1-3, Replicant & Automata] DeathNote, AOT, TGCF & MDZS <img src=https://64.media.tumblr.com/e6d95e3b200e4848519e0f21e569b321/8ef0b0bac74329dd-76/s540x810/f20499294483fd5d30e2dc5cb1f49c48ac69b539.pnj height="35px">
+<p align="center"> Final Fantasy [VII, VIII, X, XII, XIII,XV, XVI] Yakuza[0-5] KH[I,COM,III,W.I.P] Yakuza[0-5] DMC[3-5] MGS[1-R] RE[2-8] DraknieR[DG1-3, Replicant & Automata] DeathNote, AOT, TSHD,Ajin,JJBA,BRS,OHSHC TGCF & MDZS <img src=https://64.media.tumblr.com/e6d95e3b200e4848519e0f21e569b321/8ef0b0bac74329dd-76/s540x810/f20499294483fd5d30e2dc5cb1f49c48ac69b539.pnj height="35px">
   <p align="center"> Vkei, Numetal, Metal,Rock
 
   <p align="center"> <img src=https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj height="16px">
