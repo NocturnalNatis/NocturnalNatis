@@ -3,7 +3,7 @@
 <p align="center"> <img src=https://raw.githubusercontent.com/NocturnalNatis/NocturnalNatis/refs/heads/main/Untitled61_20251005185047.png height="360px">
 <p align="center"> <img src=https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj height="16px">
 <p align="center"><br><br><b> ✦Criteria✦ </b>
- <p align="center"> <img src=https://raw.githubusercontent.com/NocturnalNatis/NocturnalNatis/refs/heads/main/Untitled62_20251005190157.png height="490px">
+ <p align="center"> <img src=https://raw.githubusercontent.com/NocturnalNatis/NocturnalNatis/refs/heads/main/Untitled62_20251005213102.png height="490px">
   
 <p align="center"><br><br><b>I block freely if I block you DO NOT ask others for me to unblock there is likely a reason behind it.</b> 
   
