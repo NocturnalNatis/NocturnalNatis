@@ -1,7 +1,6 @@
 # ⭒About N✦tis⭒
-<p align="center"> <img src=https://64.media.tumblr.com/8af38de204995253185a1eb0091d9a7f/467cdec442d12682-b3/s250x400/5f420a0ced78fa97140b0bfd2ff3236e6dd35185.pnj height="45px"> Welcome to my Github! <img src=https://64.media.tumblr.com/136e6a239bac2739768f0067f7c3df4b/902670c41956764e-e3/s250x400/64c917373d80c61ab4ab17359b48a8390f437e13.pnj height="45px">
 
-<p align="center"> <img src=https://i.pinimg.com/originals/03/63/11/0363112d77e831018b8052befbc01829.gif height="360px">
+<p align="center"> <img src=https://raw.githubusercontent.com/NocturnalNatis/Pictures-for-github/refs/heads/main/Untitled61_20251005185047.png?token=GHSAT0AAAAAADKTDNTRI2DE6YVZMKRITYS42HDCQQQ height="360px">
 <p align="center"> <img src=https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj height="16px">
 <p align="center"><br><br><b> ✦Permissions✦ </b>
   <p align="center"> <img src=https://i.ibb.co/hmD9KnR/IMG-5018.gif ="16px"> X Flirting &/or Roleplay
