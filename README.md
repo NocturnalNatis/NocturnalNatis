@@ -12,7 +12,7 @@
   <p align="center"> <img src=https://raw.githubusercontent.com/NocturnalNatis/NocturnalNatis/refs/heads/main/Untitled59_20251005183707.png height="370px">
 
 <p align="center"><br><br><b> ✦About/Interests✦ </b> 
-<p align="center"> Current Main Interests{Games}: Final Fantasy, Kingdom Hearts, Devil May Cry, Silent Hill F {More In Strawpage.}
+<p align="center"> Current Main Interests{Games}: Final Fantasy, Kingdom Hearts, Devil May Cry, Silent Hill F {More of my interests are in my Strawpage.}
 
   <p align="center"> <img src=https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj height="16px">
 
