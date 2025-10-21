@@ -15,6 +15,9 @@
 
   <p align="center"> <img src=https://64.media.tumblr.com/588158f25a83025f9c367a4ed109c862/5983c063df5aee84-54/s1280x1920/f53be16e1c832aeadd1e5faef0200e087eae2b38.pnj height="16px">
 
+  <p align="center"><br><br><b> ✦Oomfs!✦ </b> 
+@foulblaze @poltican @gluttonyfang @CUBE-IC
+
 <p align="center"><br><br><b> ✦If Afk✦ </b> 
 <p align="center"> Whisper to me; I can't promise that I'd reply though.<img src=https://i.ibb.co/85zVJSS/IMG-6378.gif height="12px">
 
