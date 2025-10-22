@@ -16,7 +16,7 @@
 
   <p align="center"><br><br><b> ✦Oomfs!✦ </b> 
   
-<p align="center"> @Chocoboco [@foulblaze](https://github.com/foulblaze) [@poltican](https://github.com/poltican)  [@CUBE-IC](https://github.com/CUBE-IC) [@priceoffreedom](https://github.com/priceoffreedom) [@gluttonyfang](https://github.com/gluttonyfang) 
+[@foulblaze](https://github.com/foulblaze) [@poltican](https://github.com/poltican)  [@CUBE-IC](https://github.com/CUBE-IC) [@priceoffreedom](https://github.com/priceoffreedom) [@gluttonyfang](https://github.com/gluttonyfang) 
 
 <p align="center"><br><br><b> ✦If Afk✦ </b> 
 <p align="center"> Whisper to me; I can't promise that I'd reply though.<img src=https://i.ibb.co/85zVJSS/IMG-6378.gif height="12px">
