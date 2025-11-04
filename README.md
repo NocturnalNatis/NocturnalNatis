@@ -23,7 +23,7 @@
 [@foulblaze](https://github.com/foulblaze) [@poltican](https://github.com/poltican) [@tongariz](https://github.com/tongariz) [@chintuli](https://github.com/chintuli) [@CUBE-IC](https://github.com/CUBE-IC) [@REX](https://github.com/kibokage) [@priceoffreedom](https://github.com/priceoffreedom) [@crisscross26](https://github.com/crisscross26) [@gluttonyfang](https://github.com/gluttonyfang) 
 
 <p align="center"><br><br><b> ✦If Afk✦ </b> 
-<p align="center"> Whisper to me; I can't promise that I'd reply though.<img src=https://i.ibb.co/85zVJSS/IMG-6378.gif height="12px">
-<p align="center"> More info can be found on my strawpage.
+<p align="center"> Whisper to me; I can't promise that I'd reply though. [If I don't, please write to me in my ata book!<img src=https://i.ibb.co/85zVJSS/IMG-6378.gif height="12px">
+
 
 
