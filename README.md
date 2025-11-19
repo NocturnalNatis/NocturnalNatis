@@ -18,7 +18,7 @@
 
   <p align="center"><br><br><b> ✦Oomfs!✦ </b> 
   
-[@foulblaze](https://github.com/foulblaze) [@poltican](https://github.com/poltican) [@tongariz](https://github.com/tongariz) [@chintuli](https://github.com/chintuli) [@CUBE-IC](https://github.com/CUBE-IC) [@REX](https://github.com/kibokage) [@priceoffreedom](https://github.com/priceoffreedom) [@crisscross26](https://github.com/crisscross26) [@gluttonyfang](https://github.com/gluttonyfang) 
+[@foulblaze](https://github.com/foulblaze) [@poltican](https://github.com/poltican) [@tongariz](https://github.com/tongariz)  [@CUBE-IC](https://github.com/CUBE-IC) [@REX](https://github.com/kibokage) [@priceoffreedom](https://github.com/priceoffreedom) [@crisscross26](https://github.com/crisscross26) [@gluttonyfang](https://github.com/gluttonyfang) 
 
 
 
