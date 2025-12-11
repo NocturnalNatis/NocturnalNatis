@@ -18,6 +18,6 @@
 
   <p align="center"><br><br><b> ✦Oomfs!✦ </b> 
   
-[@foulblaze](https://github.com/foulblaze) [@poltican](https://github.com/poltican) [@tongariz](https://github.com/tongariz)  [@CUBE-IC](https://github.com/CUBE-IC) [@Tifi](https://github.com/Tifinightime) [@REX](https://github.com/kibokage) [@gluttonyfang](https://github.com/gluttonyfang) 
+[@foulblaze](https://github.com/foulblaze) [@poltican](https://github.com/poltican) [@tongariz](https://github.com/tongariz)   [@Tifi](https://github.com/Tifinightime) [@REX](https://github.com/kibokage) [@gluttonyfang](https://github.com/gluttonyfang) 
 
 
