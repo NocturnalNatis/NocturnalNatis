@@ -14,6 +14,7 @@
 
 <p align="center"><br><br><b> ✦About/Interests✦ </b> 
 <p align="center"> Please interact if you share these same interests {More in Strawpage};
+ <p align="center"> ✦Main 3 Interests as of now: Final Fantasy{7[Most of them still have to finish OG],8,12[W.I.P]13,15 & 16} Monster Hunter Wilds, Where Winds meet
  <p align="center"> <img src=https://github.com/NocturnalNatis/for-github/blob/main/my%20interests.png height="460px">
 
 <p align="center"> <img src=https://64.media.tumblr.com/b476d59d444cce536d0e2d5c8ea9ab9b/e5cde90135c8fe90-33/s1280x1920/65544c85dd59b9ab5c5ca0f7e9c4a61b4baf90dd.pnj height="50px">
