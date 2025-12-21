@@ -18,6 +18,6 @@
 
   <p align="center"><br><br><b> ✦Oomfs!✦ </b> 
   
-[@foulblaze](https://github.com/foulblaze) [@poltican](https://github.com/poltican) [@tongariz](https://github.com/tongariz)   [@Tifi](https://github.com/Tifinightime) [@gluttonyfang](https://github.com/gluttonyfang) 
+[@foulblaze](https://github.com/foulblaze) [@poltican](https://github.com/poltican) [@tongariz](https://github.com/tongariz)    [@gluttonyfang/LUKAS!!!](https://github.com/gluttonyfang) 
 
 
