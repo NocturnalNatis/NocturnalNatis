@@ -6,7 +6,7 @@
 <p align="center"><br><br><b> ✦Criteria✦ </b>  <p align="center"> <img src=https://static.wikia.nocookie.net/finalfantasy/images/7/7b/Mascot_Emoji_by_LINE_08.png/revision/latest?cb=20220528204350 height="70px">
 
 <p align="center"> ✦Do not copy my ponies! |  ASK if you want to take inspo, just don't outright copy me
- <p align="center"> ✦DNI; Basic Criteria, Proshipper[Spardacest&/or Roscest] You are a No Doubler[It's delusional imo] Fandoms;[Hazbin/Helluva, Genshin/StarRail,Slowdamage], Online Family people[those types of ppl in proximity chat vids]
+ <p align="center"> ✦DNI; Basic Criteria, Proshipper[Spardacest&/or Roscest] You are a No Doubler[It's delusional imo] Fandoms;[Hazbin/Helluva, Genshin/StarRail,Slowdamage,DMMD], Specifically hose types of ppl in proximity chat vids
  <p align="center">✦I block & Hide freely [It happens very rarely but there is always a valid reason behind it.]
  <p align="center"> ✦Please don't be scared to interact with me | C+H & whispers are welcome!
  
