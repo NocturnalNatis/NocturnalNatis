@@ -7,13 +7,12 @@
 
 <p align="center"> ✦Do not copy my ponies! |  ASK if you want to take inspo, just don't outright copy me
  <p align="center"> ✦DNI; Basic Criteria, Proshipper[Those who know ppl are proshippers & actively sit next to them &/or support them][Spardacest&/or Roscest,Any incest] You are a No Doubler[It's delusional imo] Fandoms;[Hazbin/Helluva, Genshin/StarRail,Slowdamage,DMMD], Specifically those types of ppl in proximity chat vids
- <p align="center">✦I block & Hide freely [It happens very rarely but there is always a valid reason behind it.]
- <p align="center"> ✦Please don't be scared to interact with me | C+H & whispers are welcome!
+ <p align="center">✦I block & Hide freely [It happens very rarely but there is always a valid reason behind it.]  | C+H is always welcome.
  
 <p align="center"> <img src=https://64.media.tumblr.com/b476d59d444cce536d0e2d5c8ea9ab9b/e5cde90135c8fe90-33/s1280x1920/65544c85dd59b9ab5c5ca0f7e9c4a61b4baf90dd.pnj height="50px">
 
 <p align="center"><br><br><b> ✦About/Interests✦ </b> 
-<p align="center"> Please interact if you share these same interests {More in Strawpage};
+<p align="center"> Feel free to interact if you share these same interests {More in Strawpage};
  <p align="center"> <img src=https://github.com/NocturnalNatis/for-github/blob/main/my%20interests.png height="460px">
 
 <p align="center"> <img src=https://64.media.tumblr.com/b476d59d444cce536d0e2d5c8ea9ab9b/e5cde90135c8fe90-33/s1280x1920/65544c85dd59b9ab5c5ca0f7e9c4a61b4baf90dd.pnj height="50px">
