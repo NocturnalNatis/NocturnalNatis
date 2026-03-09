@@ -16,7 +16,7 @@
   </h3> 
 <br><br><b> Natis/Noct | He·Him | INFP-T |Preferably 18+ friends mostly.</b> 
 
-<sub>My Hobbies consist of gaming, Electric Guitar & drawing, Please feel free to check out my <a href="https://acggoods.com/store/CrystalNatis">Store.</a> Huge into Vkei,Goth,Rock & Metal. </sub>
+<sub>My Hobbies consist of gaming, Electric Guitar & drawing, Please feel free to check out my <a href="https://acggoods.com/store/CrystalNatis">Store.</a> really into Vkei,Goth,Rock & Metal. </sub>
 
 
 <sub>I enjoy making new oomfs so feel free to interact with me esp if we share interests such as Resident Evil,Metal Gear, Devil may cry, DrakeNier, Final Fantasy & Evangelion![Many more are listed in my strawpage linked in guns.lol] Feel free to take inspo off my ponies as long as it isn't out right copying.</sub>
