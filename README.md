@@ -19,7 +19,7 @@
 <sub>My Hobbies consist of gaming, Electric Guitar & drawing, Please feel free to check out my <a href="https://acggoods.com/store/CrystalNatis">Store.</a> really into Vkei,Goth,Rock & Metal. </sub>
 
 
-<sub>I enjoy making new oomfs so feel free to interact with me esp if we share interests such as Resident Evil,Metal Gear, Devil may cry, DrakeNier, Final Fantasy & Evangelion!Most of my interests I've been into for 3+ years now,Others interests Like LOZ I've been into since childhood. [Many more are listed in my strawpage linked in guns.lol] Feel free to take inspo off my ponies as long as it isn't out right copying.I prefer not to rp on ponytown it's not really my thing.</sub>
+<sub>I enjoy making new oomfs so feel free to interact with me esp if we share interests such as Resident Evil,Metal Gear, Devil may cry, DrakeNier, Final Fantasy & Evangelion!Most of my interests I've been into for 3+ years now,Others interests Like LOZ I've been into since childhood. [Many more are listed in my strawpage linked in guns.lol] Feel free to take inspo off my ponies as long as it isn't out right copying.</sub>
 
 <sub>Most of the time I'm off tab playing video games or doing something else so if you had something to say to me & I happen to miss it please sign my <a href="https://nocturnalnatis.atabook.org">Atabook. </a></sub>
 
@@ -27,7 +27,7 @@
 
 <br><br><b>🚨My Criteria🚨</b> 
 
-<sub>DO NOT INT If you are a proshipper[Spardacest,Roscest,Ect..] Apart of Any of these fandoms[Hazbin & helluva, Enstars,Hoyoverse, Okegom & Mogeko Castle] Anti-LGBTQ+,Racists, A weirdo & a person who does not respect boundaries. </sub>
+<sub>I prefer not to rp on ponytown it's not really my thing & I don't really do good with roleplaying even if it is all jokes & stuff. DO NOT INT If you are a proshipper[Spardacest,Roscest,Ect..] Apart of Any of these fandoms[Hazbin & helluva, Enstars,Hoyoverse, Okegom & Mogeko Castle] Anti-LGBTQ+,Racists, A weirdo &/or a person who does not respect boundaries.We won't get along if you think highly of yourself & don't communicate to your friends if you have an issue with them.</sub>
 
 <img width="540" height="26" alt="image" src="https://github.com/user-attachments/assets/94ba4b1b-7120-48d6-8533-a32df39bb575" />
 
