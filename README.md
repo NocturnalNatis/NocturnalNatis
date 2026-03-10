@@ -19,7 +19,7 @@
 <sub>My Hobbies consist of gaming, Electric Guitar & drawing, Please feel free to check out my <a href="https://acggoods.com/store/CrystalNatis">Store.</a> really into Vkei,Goth,Rock & Metal. </sub>
 
 
-<sub>I enjoy making new oomfs so feel free to interact with me esp if we share interests such as Resident Evil,Metal Gear, Devil may cry, DrakeNier, Final Fantasy & Evangelion![Many more are listed in my strawpage linked in guns.lol] Feel free to take inspo off my ponies as long as it isn't out right copying.</sub>
+<sub>I enjoy making new oomfs so feel free to interact with me esp if we share interests such as Resident Evil,Metal Gear, Devil may cry, DrakeNier, Final Fantasy & Evangelion!Most of my interests now I've been into for 3+ years now others Like LOZ I've been into since childhood.[Many more are listed in my strawpage linked in guns.lol] Feel free to take inspo off my ponies as long as it isn't out right copying.</sub>
 
 <sub>Most of the time I'm off tab playing video games or doing something else so if you had something to say to me & I happen to miss it please sign my <a href="https://nocturnalnatis.atabook.org">Atabook. </a></sub>
 
