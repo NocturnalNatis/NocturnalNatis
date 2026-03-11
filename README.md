@@ -14,7 +14,7 @@
  ❝Sorry, But I'm not on the menu.❞ <img width="30" height="80" alt="image" src="https://github.com/user-attachments/assets/31d857f3-46e1-44ca-8998-a8577ae696f7" />
 
   </h3> 
-<br><br><b> Natis/Noct | He·Him | INFP-T[Mainly an ambivert if you're confused] |Preferably 18+ friends.</b> 
+<br><br><b> Natis/Noct | He·Him | INFP-T[ambivert] |Preferably 18+ friends.</b> 
 
 <sub>My Hobbies consist of gaming, Electric Guitar & drawing, Please feel free to check out my <a href="https://acggoods.com/store/CrystalNatis">Store.</a> really into Vkei,Goth,Rock & Metal. </sub>
 
