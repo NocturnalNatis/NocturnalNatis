@@ -27,7 +27,7 @@
 
 <br><br><b>🚨My Criteria🚨</b> 
 
-<sub>I prefer not to rp on ponytown it's not really my thing & I don't really do good with roleplaying even if it is all jokes & stuff. DO NOT INT If you are a proshipper[Spardacest,Roscest,Ect..] Apart of Any of these fandoms[Hazbin & helluva, Enstars,Hoyoverse & Okegom] Anti-LGBTQ+,Racists, A weirdo &/or a person who does not respect boundaries.We won't get along if you think highly of yourself & don't communicate to your friends if you have an issue with them.</sub>
+<sub>I prefer not to rp on ponytown it's not really my thing & I don't really do good with roleplaying even if it is all jokes & stuff. DO NOT INT If you are a proshipper[Spardacest,Roscest,Ect..] Apart of Any of these fandoms[Hazbin & helluva, Enstars,Hoyoverse & Okegom] Anti-LGBTQ+,Racists, Mysoginistic &/or dude bro Fans of things I enjoy[RE Mainly], A weirdo &/or a person who does not respect boundaries.We won't get along if you think highly of yourself & don't communicate to your friends if you have an issue with them.</sub>
 
 <img width="540" height="26" alt="image" src="https://github.com/user-attachments/assets/94ba4b1b-7120-48d6-8533-a32df39bb575" />
 
