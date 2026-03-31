@@ -34,7 +34,7 @@
 <br><br><b>My Oomfies!</b> 
 
 <a href="https://github.com/foulblaze">Ajax!{My goated Twin}</a> ⋆ <a href="https://github.com/tongariz"> Mira!{Girl boss the sheva diva}</a>  ⋆   <a href="https://github.com/keajkidd"> Kea!{Always Chillin like a villain}</a>  ⋆ <a href="https://github.com/gluttonyfang">Lukas!{MY BASED GOAT}</a>  ⋆ <a href="https://github.com/kashisangel">Kashi{HE CLUTCHES}</a>  ⋆ <a href="https://github.com/poltican">Pol {That guy who has a goal}</a> 
- ⋆ <a href="https://github.com/chintuli">Elsie {renowned dogtastic digital singer}</a>, Yumi[Made me hollar laughing, my neighbors must hate me], Chocoboco[My best friend 5evah]   ⋆ <a href="https://github.com/MEETMEINM0NTAUK">Salem{The sweet & Kind oomf}</a>
+ ⋆ <a href="https://github.com/chintuli">Elsie {renowned dogtastic digital singer}</a> ⋆ <a href="https://github.com/MEETMEINM0NTAUK">Salem{The sweet & Kind oomf} ⋆ <a href="https://github.com/iimitation">My Goat iimitation{Yeah, Holy Tuff}</a> Yumi[Made me hollar laughing, my neighbors must hate me] ⋆ Chocoboco[My best friend 5evah]
 
 <sub> & many more...If you want to be added lmk oomfs </sub>
 
