@@ -31,11 +31,6 @@
 
 <img width="540" height="26" alt="image" src="https://github.com/user-attachments/assets/94ba4b1b-7120-48d6-8533-a32df39bb575" />
 
-<br><br><b>My Oomfies!</b> 
-
- <a href="https://github.com/MEETMEINM0NTAUK">Salem{The sweet & Kind oomf} ⋆ <a href="https://github.com/iimitation">My Goat iimitation{Yeah, Holy Tuff}</a> Yumi[Made me hollar laughing, my neighbors must hate me] ⋆ Chocoboco[My best friend 5evah]
-
-<sub> & many more...If you want to be added lmk oomfs </sub>
 
 ![ezgif-347b0323ddffbc0d](https://github.com/user-attachments/assets/c13afcd5-ebbb-43b5-b807-a0689ec7e274)
 
