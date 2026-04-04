@@ -14,7 +14,7 @@
  ❝Sorry, But I'm not on the menu.❞ <img width="30" height="80" alt="image" src="https://github.com/user-attachments/assets/31d857f3-46e1-44ca-8998-a8577ae696f7" />
 
   </h3> 
-<br><br><b> Natis/Noct | He·Him | INFP-T[ambivert] |Preferably 18+ friends.</b> 
+<br><br><b> Natis/Nat/Noct | He·Him | INFP-T[ambivert] |Preferably 18+ friends.</b> 
 
 <sub>My Hobbies consist of gaming, Electric Guitar & drawing, Please feel free to check out my <a href="https://acggoods.com/store/CrystalNatis">Store.</a> really into Vkei,Goth,Rock & Metal. </sub>
 
@@ -27,7 +27,7 @@
 
 <br><br><b>🚨My Criteria🚨</b> 
 
-<sub>DO NOT INT If you are a proshipper[Spardacest,Roscest,Ect..] Apart of Any of these fandoms[Hazbin & helluva, Enstars,Danganronpa, Hoyoverse & Okegom] Anti-LGBTQ+,Racists,Those who Fake Disorders, Mysoginistic &/or dude bro Fans, Any weirdos or creeps &/or a person who does not respect boundaries | I would rather not rp on ponytown; We won't get along if you think highly of yourself & don't communicate with your friends if you have an issue with them.</sub>
+<sub>DO NOT INT If you are a proshipper[Spardacest,Roscest,Ect..] Apart of Any of these fandoms[Hazbin & helluva,My Hero, Enstars,Danganronpa, Hoyoverse & Okegom] Anti-LGBTQ+,Racists,Those who Fake Disorders, Mysoginistic &/or dude bro Fans, Any weirdos or creeps &/or a person who does not respect boundaries | I would rather not rp on ponytown; We won't get along if you think highly of yourself & don't communicate with your friends if you have an issue with them.</sub>
 
 <img width="540" height="26" alt="image" src="https://github.com/user-attachments/assets/94ba4b1b-7120-48d6-8533-a32df39bb575" />
 
