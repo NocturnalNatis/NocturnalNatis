@@ -3,7 +3,7 @@
  <img src=https://github.com/NocturnalNatis/for-github/blob/main/Untitled91_20260309105624.png height="240px">
 <video src="https://github.com/user-attachments/assets/e5ca838c-abc4-43fa-bf80-d877086b93c4
 " width="220" height="240" controls></video>
-ᡕᠵデᡁ᠊╾━💥
+ᡕᠵデᡁ᠊╾━ 💥⁠⌖ 
 
  <img src="https://komarev.com/ghpvc/?username=NocturnalNatis&label=Residents&color=2c2b27&style=plastic"> </p>
  
