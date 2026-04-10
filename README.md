@@ -43,3 +43,5 @@
 
 <img width="130" height="26" alt="image" src="https://64.media.tumblr.com/d033e60499240e77d60fd355f9d56eae/86f0c5b7edbcb628-f1/s1280x1920/c5a9614ee3162000f7ccf2c1307287ac4714bc35.gifv" /> <img width="130" height="26" alt="image" src="https://64.media.tumblr.com/b1d9ad3b9984f93118c0824750ebbc9d/86f0c5b7edbcb628-5f/s1280x1920/f4a2189e8215f9a1666f8cdd53d68a4aa24a3675.gifv" /> 
 
+
+<sub> Credits: <a href="https://www.tumblr.com/sisterlucifergraphics/813427840168165376/could-i-request-leon-kennedy-themed-dividers-if?source=share">LeonDivider</a></sub>
