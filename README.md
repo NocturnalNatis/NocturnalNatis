@@ -7,7 +7,7 @@
 
  <img src="https://komarev.com/ghpvc/?username=NocturnalNatis&label=Residents&color=2c2b27&style=plastic"> </p>
  
-<img width="340" height="340" alt="image" src="https://64.media.tumblr.com/5288a466ebacf42e0ee3f1df3fc5ae54/0a99f40ae8e6bf6c-d5/s2048x3072/bf0842930b970f3e53275bd65edc16b722128b3b.pnj" />
+<img width="2048" height="300" alt="tumblr_5288a466ebacf42e0ee3f1df3fc5ae54_bf084293_2048" src="https://github.com/user-attachments/assets/613be48b-a54b-4201-82ff-f7921e9f5a5e" />
 
 
  
