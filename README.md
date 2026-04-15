@@ -7,11 +7,11 @@
 
  <img src="https://komarev.com/ghpvc/?username=NocturnalNatis&label=Residents&color=2c2b27&style=plastic"> </p>
  
-<img width="540" height="540" alt="image" src="https://64.media.tumblr.com/5288a466ebacf42e0ee3f1df3fc5ae54/0a99f40ae8e6bf6c-d5/s2048x3072/bf0842930b970f3e53275bd65edc16b722128b3b.pnj" />
+<img width="340" height="340" alt="image" src="https://64.media.tumblr.com/5288a466ebacf42e0ee3f1df3fc5ae54/0a99f40ae8e6bf6c-d5/s2048x3072/bf0842930b970f3e53275bd65edc16b722128b3b.pnj" />
 
 
  
-<h3 align="center"> <img width="80" height="80" alt="image" src="https://github.com/user-attachments/assets/31d857f3-46e1-44ca-8998-a8577ae696f7" />
+<h3 align="center"> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/31d857f3-46e1-44ca-8998-a8577ae696f7" />
  ❝Sorry, But I'm not on the menu.❞ <img width="30" height="80" alt="image" src="https://github.com/user-attachments/assets/31d857f3-46e1-44ca-8998-a8577ae696f7" />
 
   </h3> 
