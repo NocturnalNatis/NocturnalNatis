@@ -11,9 +11,7 @@
 
 
  
-<h3 align="center"> <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/31d857f3-46e1-44ca-8998-a8577ae696f7" />
- ❝Sorry, But I'm not on the menu.❞ <img width="30" height="80" alt="image" src="https://github.com/user-attachments/assets/31d857f3-46e1-44ca-8998-a8577ae696f7" />
-
+  </h3> <br><br><b>❝Sorry, But I'm not on the menu.❞</b> 
   </h3> 
 <br><br><b> Natis/Nat| He·Him | INFP-T[ambivert] |Preferably 18+ friends please | Music Taste:Vkei,Goth,Rock & Metal</b> 
 
