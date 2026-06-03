@@ -20,7 +20,7 @@ https://github.com/user-attachments/assets/1e7c6b83-26f7-48bd-867d-a0d32a4b8dff
   </h3> 
 <br><br><b> Natis/Nat| He·Him | INFP-T[ambivert] |Preferably 18+ friends please | Music Taste:Vkei,Goth,Rock & Metal</b> 
 
-<sub>My Hobbies consist of; gaming, Electric Guitar & drawing. Please feel free to check out my <a href="https://acggoods.com/store/CrystalNatis">Store!</a> it has a lot of Resident Evil merch as of right now; I plan to add more merch soon.</sub>
+<sub>My Hobbies consist of; gaming, Electric Guitar & drawing. Please feel free to check out my <a href="https://acggoods.com/store/CrystalNatis">Store!</a> & give a follow there if you'd like to support me it has a lot of Resident Evil merch as of right now; I plan to add more merch soon Such as Final Fantasy,Kingdom hearts, Devil May Cry & Many more.</sub>
 
 
 <sub>I enjoy making new friends so feel free to interact with me & C+H esp if we share interests such as Resident Evil,Metal Gear, Devil may cry, DrakeNier, Final Fantasy, Kingdom Hearts,ect.. Most of my interests I've been into for 3+ years now;Other interests Like LOZ I've been into since childhood. [Many more are listed in my strawpage linked in guns.lol please look there for more information.] Feel free to take inspo off my ponies as long as it isn't out right copying.</sub>
