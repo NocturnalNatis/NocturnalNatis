@@ -14,7 +14,7 @@ $\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=Nocturnal
 https://github.com/user-attachments/assets/5a2a05db-7cd4-4e66-92f5-a9361f3a3640
 
 
-<img width="366" height="175" alt="e99f7311cba74cba35c61cdd095ebe8b-removebg-preview" src="https://github.com/user-attachments/assets/d9e322e2-e6ca-4971-a85c-94c8f0424345" />
+<img width="275" height="57" alt="1c7da5941d60c55688db54e103535c70-removebg-preview" src="https://github.com/user-attachments/assets/24bacaaa-1247-457b-adfa-278ce3fd9a04" />
 
 
 
@@ -25,7 +25,7 @@ https://github.com/user-attachments/assets/5a2a05db-7cd4-4e66-92f5-a9361f3a3640
 I'm open with talking about any of the games we share in common if you happen to share the same interests;Examples{Resident Evil, Devil May Cry,Nier, Final Fantasy, Metal Gear Solid, Yakuza,Ect...} More Can be found in my Strawpage linked on the side or in my gunslol. As hobbies I game, draw & once in a blue moon play my electric guitar feel free to check out [My Store](https://acggoods.com/store/CrystalNatis) </sub>
 
 
-<img width="366" height="175" alt="e99f7311cba74cba35c61cdd095ebe8b-removebg-preview" src="https://github.com/user-attachments/assets/d9e322e2-e6ca-4971-a85c-94c8f0424345" />
+<img width="275" height="57" alt="1c7da5941d60c55688db54e103535c70-removebg-preview" src="https://github.com/user-attachments/assets/24bacaaa-1247-457b-adfa-278ce3fd9a04" />
 
 
 $${\color{#5e171c}🐉𝕮𝖗𝖎𝖙𝖊𝖗𝖎𝖆🐉}$$
