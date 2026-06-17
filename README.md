@@ -1,7 +1,12 @@
 <div align="center">
+
+
+ 
 <img width="436" height="436" alt="Untitled59_20260616164221" src="https://github.com/user-attachments/assets/b6b27e37-a5d7-4093-be43-b56b0391f161" />
 
 ❝𝘞𝘰𝘳𝘵𝘩𝘺 𝘰𝘳 𝘯𝘰𝘵 𝘐 𝘸𝘪𝘴𝘩 𝘵𝘰 𝘭𝘪𝘷𝘦!❞</b>
+
+$\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=NocturnalNatis&style=plastic&label=𝕾𝖔𝖑𝖉𝖎𝖊𝖗𝖘++&color=f21d2e)$\color{#910611}{\textsf{♱}}$
 
  
 $${\color{#5e171c}♰──────────────────────♰}$$
