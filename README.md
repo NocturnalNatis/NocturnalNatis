@@ -33,7 +33,7 @@ $${\color{#5e171c}🐉𝕮𝖗𝖎𝖙𝖊𝖗𝖎𝖆🐉}$$
 
 <sub>  Basic Criteria[Anti-LGBTQIA, racist, creepy, ect...] Adult friends are more preferable, I tend to be offtab 80% of the time if I happen to miss you messaging me please leave a note in my atabook. Feel Free to take inspo off my ponies I do not mind as long as you aren't outright copying.  Dni Fandoms; Hoyoverse, Okegom, The Amazing Digital Circus, Enstars, MHA, Danganronpa.</sub>
 
- <a href="https://www.last.fm/user/NoctNatis"><img align="center" src="https://lastfm-recently-played.vercel.app/api?user=NoctNatis&footer_style=compact_stats&count=1&width=400&loved=true&header_style=none&bg_color=7b96ad" alt="nat"></a></sub>
+ <a href="https://www.last.fm/user/NoctNatis"><img align="center" src="https://lastfm-recently-played.vercel.app/api?user=NoctNatis&footer_style=compact_stats&count=1&width=400&loved=true&header_style=none&bg_color=5e1319" alt="nat"></a></sub>
 
 
 <img width="374" height="210" alt="caim-drakengard" src="https://github.com/user-attachments/assets/c80c4b76-5d6a-4e41-8b13-1e15ad379fad" />
