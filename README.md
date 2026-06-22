@@ -46,4 +46,6 @@ $${\color{#f7da99}⚔𝕮𝖗𝖎𝖙𝖊𝖗𝖎𝖆⚔}$$
 
  <a href="https://www.last.fm/user/NoctNatis"><img align="center" src="https://lastfm-recently-played.vercel.app/api?user=NoctNatis&footer_style=compact_stats&count=1&width=400&loved=true&header_style=none&bg_color=211e21" alt="nat"></a></sub>
 
+<img  height="220" alt="balthier-ffxii" src="https://github.com/user-attachments/assets/7eb6f623-9cac-4c09-a0d2-f5be1a5820fb" />
+
 
