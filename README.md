@@ -2,15 +2,18 @@
  
 $\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=NocturnalNatis&style=plastic&label=𝕬𝖘𝖘𝖆𝖘𝖘𝖎𝖓𝖘++&color=401217)$\color{#910611}{\textsf{♱}}$
 
-<img  height="340" alt="ezgif-1be4c8d5967adaca" src="https://github.com/user-attachments/assets/3fe1b842-9738-4b09-b57e-e08c94489e38" />
 
 
+<img height="3508" alt="yippeeee" src="https://github.com/user-attachments/assets/6ea7e3a6-4f5b-4dd8-86d5-f9957baee41d" />
 
  
 
 
+https://github.com/user-attachments/assets/f8f9aaa9-c38b-4d0e-9ee1-52be000b77d9
 
-https://github.com/user-attachments/assets/f24fb1a6-e9bd-4f14-ad0a-b46c67b692d0
+
+
+
 
 
 
@@ -45,7 +48,5 @@ $${\color{#f7da99}⚔𝕮𝖗𝖎𝖙𝖊𝖗𝖎𝖆⚔}$$
 <sub>  Basic Criteria[Anti-LGBTQIA, racist, creeps, ect...] Adult friends are more preferable, I tend to be offtab 80% of the time if I happen to miss you messaging me please leave a note in my atabook. Feel Free to take inspo off my ponies I do not mind as long as you aren't outright copying.  Dni Fandoms; Hoyoverse, Okegom, The Amazing Digital Circus, Enstars, MHA, Danganronpa. immediate block/hide if;Spardacest Roscest[Any incest shipping/illegal ships]</sub>
 
  <a href="https://www.last.fm/user/NoctNatis"><img align="center" src="https://lastfm-recently-played.vercel.app/api?user=NoctNatis&footer_style=compact_stats&count=1&width=400&loved=true&header_style=none&bg_color=211e21" alt="nat"></a></sub>
-
-<img  height="220" alt="balthier-ffxii" src="https://github.com/user-attachments/assets/7eb6f623-9cac-4c09-a0d2-f5be1a5820fb" />
 
 
