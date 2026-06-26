@@ -1,6 +1,6 @@
 <div align="center">
  
-$\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=NocturnalNatis&style=plastic&label=𝔓𝔦𝔯𝔞𝔱𝔢ℭ𝔯𝔢𝔴++&color=fcc277)$\color{#910611}{\textsf{♱}}$
+$\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=NocturnalNatis&style=plastic&label=𝕬𝖘𝖘𝖆𝖘𝖘𝖎𝖓𝖘++&color=401217)$\color{#910611}{\textsf{♱}}$
 
 <img  height="340" alt="ezgif-1be4c8d5967adaca" src="https://github.com/user-attachments/assets/3fe1b842-9738-4b09-b57e-e08c94489e38" />
 
