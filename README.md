@@ -11,9 +11,7 @@ $\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=Nocturnal
  $${\color{#910611}♱𝔄𝔟𝔬𝔲𝔱♱}$$ 
 
 
-<sub>I go by Nat/Natis Feel free to call me either or. I'm into a lot of games some of which people have never heard of... 
-I'm open with talking about any of the games we share in common if you happen to share the same interests;Examples{Resident Evil, Devil May Cry,Nier, Final Fantasy, Metal Gear Solid, Yakuza,Ect...} More Can be found in my Strawpage linked on the side or in my gunslol. As hobbies I game, draw & once in a blue moon play my electric guitar feel free to check out 
-[My Store](https://acggoods.com/store/CrystalNatis) </sub> 
+<sub>Hi I go by Nat/Natis I'm into a variety of games{Like a lot...} I also enjoy listening to my friends speak about their interests feel free to interact if we happen to share the same interests Ex: Final Fantasy, Resident Evil, Yakuza, Metal Gear Solid,ECT...[more listed on Strawpage] I'm a self-taught artist as a hobby Feel free to visit [My Art Store](https://acggoods.com/store/CrystalNatis) other than that I play a lot of video games & once in a blue moon play my electric guitar.</sub> 
 
 
 
@@ -23,7 +21,7 @@ I'm open with talking about any of the games we share in common if you happen to
 $${\color{#910611}⚔𝕮𝖗𝖎𝖙𝖊𝖗𝖎𝖆⚔}$$
 
 
-<sub>  Basic Criteria[Anti-LGBTQIA, racist, creeps, ect...] Adult friends are more preferable, I tend to be offtab 80% of the time if I happen to miss you messaging me please leave a note in my atabook. Feel Free to take inspo off my ponies I do not mind as long as you aren't outright copying.  Dni Fandoms; Hoyoverse, Okegom, The Amazing Digital Circus, Enstars, MHA, Danganronpa. immediate block/hide if;Spardacest Roscest[Any incest/illegal/Proships][This includes if you follow/support anyone who does so.]</sub> 
+<sub>  Adult friends are more preferable, Basic Criteria[Anti-LGBTQIA, racist, creeps, ect...] Dni Fandoms; Hoyoverse, Okegom, The Amazing Digital Circus, Enstars, MHA, Danganronpa. immediate block/hide if;Spardacest Roscest[Any incest/illegal/Proships | This includes if you follow/support anyone who does so.] </sub> 
 
 
  
