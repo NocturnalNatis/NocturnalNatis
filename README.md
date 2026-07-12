@@ -1,8 +1,10 @@
 <div align="center">
  
+<img  height="562" alt="ezgif-16e26003372bdc1a" src="https://github.com/user-attachments/assets/734c567a-03f8-44bb-ad9a-4f52bd948958" />
+
+ 
 $\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=NocturnalNatis&style=plastic&label=𝕮𝖔𝖑𝖔𝖘𝖘𝖎++&color=401217)$\color{#910611}{\textsf{♱}}$
 
-<img  height="562" alt="ezgif-16e26003372bdc1a" src="https://github.com/user-attachments/assets/734c567a-03f8-44bb-ad9a-4f52bd948958" />
 
 
 <img  height="57" alt="1c7da5941d60c55688db54e103535c70-removebg-preview" src="https://github.com/user-attachments/assets/24bacaaa-1247-457b-adfa-278ce3fd9a04" />
