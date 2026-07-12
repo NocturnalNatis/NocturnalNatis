@@ -29,7 +29,7 @@ $\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=Nocturnal
 $${\color{#910611}⚔𝕮𝖗𝖎𝖙𝖊𝖗𝖎𝖆⚔}$$
 
 
-<sub>  Adult friends are more preferable, Basic Criteria[Anti-LGBTQIA, racist, creeps, Posers; Not so much with games but with things like Goth or Emo, ect...] Dni Fandoms; Hoyoverse, Okegom, The Amazing Digital Circus, Enstars, MHA, Danganronpa. immediate block/hide if;Spardacest Roscest[Any incest/illegal/Proships | This includes if you follow/support anyone who does so.] </sub> 
+<sub>  Adult friends are more preferable, Basic Criteria[Anti-LGBTQIA, racist, creeps, Posers; Not so much with games but with things like Goth or Emo;They are movements...] Dni Fandoms; Hoyoverse, Okegom, The Amazing Digital Circus, Enstars, MHA, Danganronpa. immediate block/hide if;Spardacest Roscest[Any incest/illegal/Proships | This includes if you follow/support anyone who does so.] </sub> 
 
 
  
