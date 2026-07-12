@@ -23,7 +23,7 @@ I'm open with talking about any of the games we share in common if you happen to
 $${\color{#910611}⚔𝕮𝖗𝖎𝖙𝖊𝖗𝖎𝖆⚔}$$
 
 
-<sub>  Basic Criteria[Anti-LGBTQIA, racist, creeps, ect...] Adult friends are more preferable, I tend to be offtab 80% of the time if I happen to miss you messaging me please leave a note in my atabook. Feel Free to take inspo off my ponies I do not mind as long as you aren't outright copying.  Dni Fandoms; Hoyoverse, Okegom, The Amazing Digital Circus, Enstars, MHA, Danganronpa. immediate block/hide if;Spardacest Roscest[Any incest/illegal/Proships]</sub> 
+<sub>  Basic Criteria[Anti-LGBTQIA, racist, creeps, ect...] Adult friends are more preferable, I tend to be offtab 80% of the time if I happen to miss you messaging me please leave a note in my atabook. Feel Free to take inspo off my ponies I do not mind as long as you aren't outright copying.  Dni Fandoms; Hoyoverse, Okegom, The Amazing Digital Circus, Enstars, MHA, Danganronpa. immediate block/hide if;Spardacest Roscest[Any incest/illegal/Proships][This includes if you follow/support anyone who does so.]</sub> 
 
 
  
