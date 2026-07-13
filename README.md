@@ -22,7 +22,7 @@ $\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=Nocturnal
  $${\color{#3f4866}♱𝕸𝖆𝖎𝖓 𝕴𝖓𝖙𝖊𝖗𝖊𝖘𝖙𝖘♱}$$ 
 
  
-<sub> As of right now; NieR Automata, Shadow Of The Colossus & Ico [Hoping to play Bloodborne & The Last Guardian Soon.]</sub>
+<sub> As of right now; NieR Automata, Ico & Umineko </sub>
 
 
 
