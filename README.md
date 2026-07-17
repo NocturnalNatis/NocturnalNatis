@@ -14,7 +14,7 @@ $\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=Nocturnal
  $${\color{#910611}♱𝔄𝔟𝔬𝔲𝔱♱}$$ 
 
 
-<sub>Hi I go by Nat/Natis I'm into a variety of games{Like a lot...} I also enjoy listening to my friends speak about their interests feel free to interact if we happen to share the same interests Ex: Final Fantasy, Resident Evil, Yakuza, Metal Gear Solid,ECT...[more listed on Strawpage] I'm a self-taught artist as a hobby Feel free to visit [My Art Store](https://acggoods.com/store/CrystalNatis) other than that I play a lot of video games & once in a blue moon play my electric guitar.</sub> 
+<sub>Hi I go by Nat/Natis I'm into a variety of games{Like a lot...} I also enjoy listening to my friends speak about their interests feel free to interact if we happen to share the same interests Ex: Final Fantasy, Resident Evil, Yakuza, Metal Gear Solid,ECT...[more listed on Strawpage] Please don't be afraid to interact with me at all I'm pretty chill most of the time! I'm a self-taught artist as a hobby Feel free to visit [My Art Store](https://acggoods.com/store/CrystalNatis) other than that I play a lot of video games & once in a blue moon play my electric guitar.</sub> 
 
 <img  height="57" alt="1c7da5941d60c55688db54e103535c70-removebg-preview" src="https://github.com/user-attachments/assets/24bacaaa-1247-457b-adfa-278ce3fd9a04" />
 
