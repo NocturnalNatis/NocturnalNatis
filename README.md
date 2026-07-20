@@ -22,7 +22,7 @@ $\color{#910611}{\textsf{♱}}$![](https://komarev.com/ghpvc/?username=Nocturnal
  $${\color{#3f4866}♱𝕸𝖆𝖎𝖓 𝕴𝖓𝖙𝖊𝖗𝖊𝖘𝖙𝖘♱}$$ 
 
  
-<sub> As of right now; NieR Automata, Ico & Umineko </sub>
+<sub> As of right now; NieR Automata,Castlevania Lords Of Shadow, Ico & Umineko </sub>
 
 
 
