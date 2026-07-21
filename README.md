@@ -53,7 +53,7 @@ https://github.com/user-attachments/assets/213763f6-b2ca-4a48-8c69-9668e21b5fa9
 
 
 
- <a href="https://www.last.fm/user/NoctNatis"><img align="center" src="https://lastfm-recently-played.vercel.app/api?user=NoctNatis&footer_style=compact_stats&count=1&width=400&loved=true&header_style=none&bg_color=211e21" alt="nat"></a></sub>
+ <a href="https://www.last.fm/user/NoctNatis"><img align="center" src="https://lastfm-recently-played.vercel.app/api?user=NoctNatis&footer_style=compact_stats&count=1&width=400&loved=true&header_style=none&bg_color=00000000" alt="nat"></a></sub>
 
 
 
